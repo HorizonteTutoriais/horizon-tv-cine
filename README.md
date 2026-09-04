@@ -1,2 +1,2 @@
-# 📺🎬 Horizon TV Cine
+# Detalhes
 Descrição oficial do aplicativo 📺🎬 Horizon TV Cine
